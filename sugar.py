@@ -1,1 +1,1 @@
-sua  sub  suc sud 
+sua  sub  suc suf 
